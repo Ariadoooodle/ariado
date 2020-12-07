@@ -3,8 +3,6 @@
 
 略略略略
 
-黄憨憨
-
 taeiljohhnytaeyongyutakundoyoungtenjaehyunwinwin
 
 jungwoolucasmarkhendryxiaojunrenjunjenoheachan
